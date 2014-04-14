@@ -9,6 +9,9 @@ Sheng-Po
 
 雲端上的聖博
 ========
+
+台灣當代藝術資料庫：http://wiki.avat-art.org/mediawiki/index.php/%E6%B2%88%E8%81%96%E5%8D%9A
+
 影音頻道YouTube:https://www.youtube.com/user/owens096/videos
 
 開源程式碼：https://github.com/shengpo
