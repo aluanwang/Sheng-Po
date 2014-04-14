@@ -13,7 +13,7 @@ Sheng-Po
 
 雲端上聖博
 ========
-開放性原始碼：https://github.com/shengpo
+開源作品：https://github.com/shengpo
 
 臉書：https://www.facebook.com/shengpo
 
