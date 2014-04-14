@@ -27,8 +27,6 @@ Sheng-Po
 
 臉書FACEBOOK：https://www.facebook.com/shengpo
 
-有為空間：https://www.flickr.com/photos/action4space/
-
 部落格：http://action4space.blogspot.tw/
 
 
