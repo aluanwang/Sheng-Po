@@ -65,6 +65,7 @@ R.I.P. my friend Shen Sheng-Po. You are one of the greatest artists I know.
 OPB，做為你眾多朋友中的其中一個，而且曾經身為你的室友之一，真的很捨不得，我會永遠珍惜、懷念這緣份 ，願你在天上一切安詳
 
 #林煥純
+
 ![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/%E6%9E%97%E7%85%A5%E7%B4%94.jpg?raw=true)
 
 早上知道這消息我真的太震撼了。。。
