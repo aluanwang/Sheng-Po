@@ -2,78 +2,59 @@
 OPB~還記得你在大學時期的開朗笑聲~
 一路好走~到天堂繼續編織你的夢想吧!~
 
-莫奇峰發佈至‎Shen Sheng-Po
-========
+#莫奇峰發佈至‎Shen Sheng-Po
 Owen兄，謝謝你在英國時的照顧，走好，有緣再聚。
 
-Rohan Hu發佈至‎Shen Sheng-Po
-========
+#Rohan Hu發佈至‎Shen Sheng-Po
 即使相處短暫，也總是記得你的熱情與對創作的能量。繼續開心地做著好夢吧～
 
-Lex Wang發佈至‎Shen Sheng-Po
-========
+#Lex Wang發佈至‎Shen Sheng-Po
 因為你，我們好多人獲得了更多喜悅與啟發，這，下次我們再見時，將是更多的美好，R.I.P, Our best friends
 
-江政達發佈至‎Shen Sheng-Po
-========
+#江政達發佈至‎Shen Sheng-Po
 記得09年你快要30歲的時候，一直都記得跟我說，要為台灣多做些什麼，為創作多些貢獻，30歲會有一番不一樣的成就...
 
 
-Nadi Hsu發佈至‎Shen Sheng-Po
-========
+#Nadi Hsu發佈至‎Shen Sheng-Po
 聖博老師,謝謝你,願你平靜。
 
-曾睿智發佈至‎Shen Sheng-Po
-========
+#曾睿智發佈至‎Shen Sheng-Po
 我會記得那幾次的短暫對話裡，你讓我感受到的真誠與溫暖，非常感謝。
 
-周哲宇發佈至‎Shen Sheng-Po
-========
+#周哲宇發佈至‎Shen Sheng-Po
 R.I.P 聖博老師
 
-Orietta Lin發佈至‎Shen Sheng-Po
-========
+#Orietta Lin發佈至‎Shen Sheng-Po
 謝謝你，讓我們感受好多勇敢和感動，好哆粒和田中間會一直繼續努力，希望你在另一個國度可以繼續追求你的夢
 
-Yuen-yuen Chen發佈至‎Shen Sheng-Po
-========
+#Yuen-yuen Chen發佈至‎Shen Sheng-Po
 透過你，我明白了熱情追求理想、真誠無私待人的人格特質典範是什麼，我一直很尊敬你，謝謝你的照顧，祝福你平靜休息。
 
-Itsour Hsu發佈至‎Shen Sheng-Po
-========
+#Itsour Hsu發佈至‎Shen Sheng-Po
 R.I.P
 
 
-李佩玲發佈至‎Shen Sheng-Po
-========
+#李佩玲發佈至‎Shen Sheng-Po
 聖博，你脫離病痛了，我們永遠都愛你
 
 
-曾煒傑發佈至‎Shen Sheng-Po
-========
+#曾煒傑發佈至‎Shen Sheng-Po
 聖博 R.I.P 
 看到消息，我多麼希望今天是愚人節。
 感謝生命中能與一個那麼真誠且熱情追求理想的人有了交集。
 
 
-Nick Yang發佈至‎Shen Sheng-Po
-========
+#Nick Yang發佈至‎Shen Sheng-Po
 哥，在另一方的你要繼續快樂，我們會想念你。
 
 
-Rocio White發佈至‎Shen Sheng-Po
-========
-
+#Rocio White發佈至‎Shen Sheng-Po
 R.I.P. Shen Sheng-Po 我們永遠愛你！
-
 還有好多話要跟你說，可是不知道要怎麼寫.....我一個字都寫不出來...
 
-Rocio White發佈至‎Shen Sheng-Po
-========
+#Rocio White發佈至‎Shen Sheng-Po
 R.I.P 
 祝福聖博在光裡，祝福聖博回到你原來的地方，我們都愛你。
 
-
-Rocio White
-========
+#Rocio White
 祝福你
