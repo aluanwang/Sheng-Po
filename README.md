@@ -9,13 +9,17 @@ Sheng-Po
 
 雲端上的聖博
 ========
-開源作品：https://github.com/shengpo
+影音頻道YouTube:https://www.youtube.com/user/owens096/videos
 
-臉書：https://www.facebook.com/shengpo
+開源程式碼：https://github.com/shengpo
+
+臉書FACEBOOK：https://www.facebook.com/shengpo
 
 有為空間：https://www.flickr.com/photos/action4space/
 
 部落格：http://action4space.blogspot.tw/
+
+
 
 
 
