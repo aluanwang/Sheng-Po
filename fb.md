@@ -1,16 +1,114 @@
+
 #
 #
 #
 #
-#
-#
-#
-#
-#
-#
-#
-##
-#
+#Logan Huang發佈至‎Shen Sheng-Po
+OPB，做為你眾多朋友中的其中一個，而且曾經身為你的室友之一，真的很捨不得，我會永遠珍惜、懷念這緣份 ，願你在天上一切安詳
+
+#林煥純
+早上知道這消息我真的太震撼了。。。
+很難過
+生命可以很堅強也可以很脆弱，
+活著的人們真的要好好珍惜生命
+更要珍惜你所珍惜的人
+我很感謝勝博和老江
+要是沒有當時在有爲空間的展出
+我的拍立得的環島旅行可能就不會出現
+也就不會被詠聖邀請到20號倉庫展覽
+也就更不會申請20號倉庫駐站
+要是沒有受到勝博跟老江的幫忙
+後續的一切可能都會變了調。。。
+我真的很感謝！！
+好哆粒全員也很感謝你們！！
+勝博哥一路好走！！ — 和 Shen Sheng-Po 跟其他 8 個人
+
+
+#江振維
+能與聖博同場展出真的很開心 — 和 Shen Sheng-Po 跟其他 8 個人
+
+
+#Irene Lee發佈至‎Shen Sheng-Po
+聖博，一生中能有幾位無私的貴人？你絕對是我最感激的人之一。謝謝你的熱情，你的堅持，讓我看到單純的力量有多麼強大。雖然短暫，但你帶給我們的影響卻是一輩子的。You will be missed.
+
+
+#Eva Wang發佈至‎Shen Sheng-Po
+願OPB在天堂也一樣熱情地活著，那兒多了你爽朗的笑聲真好～願神保佑家人, 老江, 朋友們。
+
+剛剛在舊照片中翻找，找到2005, 2006, 2009年UU91出遊時的開心回憶，OPB的笑聲一直在我腦海圍繞，你永遠與我們同在。
+
+所有的病痛都已遠離，你的笑容，我會永遠記得。
+
+2005年UU91 — 與 Shen Sheng-Po
+
+
+#江政達
+2009 你覺得夢想是什麼？for 棉花糖[katncandix2] 演出.
+(沈聖博剪接) Shen Sheng-Po
+
+#WanYing Lai發佈至‎Shen Sheng-Po
+聖博 我會永遠記得你溫暖又樂觀的笑容 真的很幸運有緣認識你
+謝謝你一直以來的幫助和鼓勵 R.i.P. 願你一路好走...
+
+
+#Yaping Chang
+Shen Sheng-Po有幸認識你，可以和真誠的你成為好朋友！真的很幸運！ — 與老江和 Red Bean Liu
+
+#LovelyShow Huang發佈至‎Shen Sheng-Po
+才寄了一整盒你愛的小case，為什麼！為什麼？為什麼這樣！我拒絕接受這個告知！
+
+#Tobias Hoffmann發佈至‎Shen Sheng-Po
+one of the best past away, it was a pleasure to work with him. playaround.cc
+
+#Yaping Chang
+我們會在不同的星空裡一起創作～然後都笑得這麼開心～
+永願都會在牡羊座的季節都留下你的位置～
+
+Shen Sheng-Po 老江 Red Bean Liu
+
+#江政達
+Shen Sheng-Po製作
+https://www.youtube.com/watch?v=7Cum9nTqg94&feature=youtu.be
+
+
+#Chongkai Hong發佈至‎Shen Sheng-Po
+九年的同學，一路好走....
+
+
+#Chia-Ying Lin發佈至‎Shen Sheng-Po
+聖博在你身上我看見了對創作的熱忱、對藝術的執著。我會記得你那一份真誠熱情的心，我相信有很多人會延續下去這份精神，謝謝能成為你的朋友，祝福你無論身在哪裡，願一切美好R.I.P..
+
+
+#Mao Wu
+2008，因為一個對現在互動圈與數位藝術圈的影響甚大的玩趣工作坊，認識了聖博，後來陸陸續續我們合作了許多計劃，一直以來我都還是稱他大師，因為他一直對藝術創作的堅持，實實在在地影響了許多人，因為有他跟王爺，OT才能讓更多人了解開源創作的美好，因為有他，當我們選擇台中為基地時，還是有伙伴在這，也因此，我們把在有為的展做為小米的發表舞臺，由他身上學到太多了，今天不是句點，我們總還是要跟你說，下次見！我們永遠的聖博大師 — 和 Shen Sheng-Po 跟其他 3 個人
+
+
+
+#Katy Hung
+聖博兄，很榮幸有機會認識你。
+你很爽朗，是相當溫暖的人，這樣優秀又謙虛的人是相當少見的。
+
+多開心有機會認識這樣一位特別的朋友。
+謝謝你過去的幫忙，很感謝。
+
+脫離了病魔，相信你能在那一個世界完全地享受自由與喜悅。
+相信有緣，還能和你分享你的熱情與創作。
+https://play.spotify.com/track/4AA1ofeNPQm6JJbEJANjL3?play=true&utm_source=open.spotify.com&utm_medium=open
+
+
+#林鼎勳發佈至‎Shen Sheng-Po
+R.I.P....你的笑容與樂觀將永遠留在我們心中....
+
+#江政達
+Shen Sheng-Po 製作 https://www.youtube.com/watch?v=usUHpPvtVXI&feature=youtu.be
+
+
+#Joey Lin發佈至‎Shen Sheng-Po
+聖博， good bye...
+
+#Boling Pan發佈至‎Shen Sheng-Po
+聖博，雖然只與你共事短短的一週，
+但也算一起參與了一個製作，你是那麼樣的追求完美，多麼熱衷在你喜歡的工作上，當時完全不知道你身處病痛之中，你真的很棒，為藝術燃燒著生命，願你在另一方健康喜樂。
 
 
 #Luisa Lin發佈至‎Shen Sheng-Po
