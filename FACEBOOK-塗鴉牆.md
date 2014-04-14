@@ -96,6 +96,7 @@ OPB，做為你眾多朋友中的其中一個，而且曾經身為你的室友�
 
 #Eva Wang發佈至‎Shen Sheng-Po
 ![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/EvaWang_1.jpg?raw=true)
+
 願OPB在天堂也一樣熱情地活著，那兒多了你爽朗的笑聲真好～願神保佑家人, 老江, 朋友們。
 
 剛剛在舊照片中翻找，找到2005, 2006, 2009年UU91出遊時的開心回憶，OPB的笑聲一直在我腦海圍繞，你永遠與我們同在。
@@ -124,9 +125,12 @@ https://www.youtube.com/watch?v=0pLd627mh_o
 
 #Rednail Wu
 ![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/RednailWu.jpg?raw=true)
+
 人生是一趟旅程，我們下次見 — 與 Shen Sheng-Po
 
 #Yaping Chang
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/YapingChang_1.jpg?raw=true)
+
 Shen Sheng-Po有幸認識你，可以和真誠的你成為好朋友！真的很幸運！ — 與老江和 Red Bean Liu
 
 #LovelyShow Huang發佈至‎Shen Sheng-Po
@@ -136,6 +140,8 @@ Shen Sheng-Po有幸認識你，可以和真誠的你成為好朋友！真的很�
 one of the best past away, it was a pleasure to work with him. playaround.cc
 
 #Yaping Chang
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/YapingChang.jpg?raw=true)
+
 我們會在不同的星空裡一起創作～然後都笑得這麼開心～
 永願都會在牡羊座的季節都留下你的位置～
 
