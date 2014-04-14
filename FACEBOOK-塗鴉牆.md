@@ -48,6 +48,8 @@ OPB，做為你眾多朋友中的其中一個，而且曾經身為你的室友�
 
 
 #江振維
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/%E6%B1%9F%E6%8C%AF%E7%B6%AD.jpg?raw=true)
+
 能與聖博同場展出真的很開心 — 和 Shen Sheng-Po 跟其他 8 個人
 
 
@@ -104,6 +106,7 @@ https://www.youtube.com/watch?v=7Cum9nTqg94&feature=youtu.be
 
 #Mao Wu
 ![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/mao.jpg?raw=true)
+
 2008，因為一個對現在互動圈與數位藝術圈的影響甚大的玩趣工作坊，認識了聖博，後來陸陸續續我們合作了許多計劃，一直以來我都還是稱他大師，因為他一直對藝術創作的堅持，實實在在地影響了許多人，因為有他跟王爺，OT才能讓更多人了解開源創作的美好，因為有他，當我們選擇台中為基地時，還是有伙伴在這，也因此，我們把在有為的展做為小米的發表舞臺，由他身上學到太多了，今天不是句點，我們總還是要跟你說，下次見！我們永遠的聖博大師 — 和 Shen Sheng-Po 跟其他 3 個人
 
 
