@@ -1,6 +1,6 @@
 Sheng-Po
 ========
-![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/shengpo.jpg)
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/shengpo.jpg?raw=true)
 紀念我們最好的朋友聖博
 
 沈聖博是知名的台灣數位藝術家也是積極的開放性原始碼的推廣者
