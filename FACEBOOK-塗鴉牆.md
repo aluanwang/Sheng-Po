@@ -1,3 +1,21 @@
+#王佩嵐發佈至‎Shen Sheng-Po
+親愛的聖博
+和你共事的日子不是很多，你每天都把大家逗得好樂，那段日子很開心
+得知了這個消息後，我回頭翻了一起工作的照片和討論的郵件...
+
+想起你說過
+牡羊座是最叛逆的星座
+這次你也帥氣的甩開病痛叛逆的出走了...  
+希望在另一個世界也能好好的
+
+祝福聖博和聖博的家人
+
+#Amy Wu發佈至‎Shen Sheng-Po
+I always remembered that big smile from your face while we were in university... 親愛的學長 R.I.P...you will always be missed...
+
+#Nicole Lee發佈至‎Shen Sheng-Po
+聖博，從昨天知道你離開的消息，心頭一直覺得好沉重！你是一個無私又真誠的人，感謝你帶給我們這麼多的美好，善良的你一定會在另一個國度過的很好，並且繼續守護著愛你的人，你永遠活在我們心中
+
 #Starry House「星宿工作室」
 我會帶著你的力作與祝福 繼續發展 連同你的份 一起努力
 
@@ -42,9 +60,11 @@
 R.I.P. my friend Shen Sheng-Po. You are one of the greatest artists I know.
 
 #Logan Huang發佈至‎Shen Sheng-Po
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/LoganHuang.jpg?raw=true)
 OPB，做為你眾多朋友中的其中一個，而且曾經身為你的室友之一，真的很捨不得，我會永遠珍惜、懷念這緣份 ，願你在天上一切安詳
 
 #林煥純
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/%E6%9E%97%E7%85%A5%E7%B4%94.jpg?raw=true)
 早上知道這消息我真的太震撼了。。。
 很難過
 生命可以很堅強也可以很脆弱，
@@ -73,6 +93,7 @@ OPB，做為你眾多朋友中的其中一個，而且曾經身為你的室友�
 
 
 #Eva Wang發佈至‎Shen Sheng-Po
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/EvaWang_1.jpg?raw=true)
 願OPB在天堂也一樣熱情地活著，那兒多了你爽朗的笑聲真好～願神保佑家人, 老江, 朋友們。
 
 剛剛在舊照片中翻找，找到2005, 2006, 2009年UU91出遊時的開心回憶，OPB的笑聲一直在我腦海圍繞，你永遠與我們同在。
@@ -80,6 +101,12 @@ OPB，做為你眾多朋友中的其中一個，而且曾經身為你的室友�
 所有的病痛都已遠離，你的笑容，我會永遠記得。
 
 2005年UU91 — 與 Shen Sheng-Po
+
+Eva Wang 2006年頭城:
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/EvaWang_2.jpg?raw=true)
+
+Eva Wang 2009年士林官邸:
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/EvaWang_3.jpg?raw=true)
 
 
 #江政達
