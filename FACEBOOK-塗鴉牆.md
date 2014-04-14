@@ -122,6 +122,9 @@ https://www.youtube.com/watch?v=0pLd627mh_o
 聖博 我會永遠記得你溫暖又樂觀的笑容 真的很幸運有緣認識你
 謝謝你一直以來的幫助和鼓勵 R.i.P. 願你一路好走...
 
+#Rednail Wu
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/RednailWu.jpg?raw=true)
+人生是一趟旅程，我們下次見 — 與 Shen Sheng-Po
 
 #Yaping Chang
 Shen Sheng-Po有幸認識你，可以和真誠的你成為好朋友！真的很幸運！ — 與老江和 Red Bean Liu
