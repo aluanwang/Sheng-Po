@@ -1,8 +1,8 @@
 ![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/ClarisseChiang.jpg?raw=true)
 
-![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/ClarisseChiang.jpg_2?raw=true)
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/ClarisseChiang_2.jpg?raw=true)
 
-![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/ClarisseChiang.jpg_3?raw=true)
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/ClarisseChiang_3.jpg?raw=true)
 嗨嗨~~聖博，在你離開之後的這幾天，我時常想起你們，雖然沒有見過你很多次，
 但每次碰面你總是笑臉迎人，給我一種令人放心的感覺，讓我相信小江跟你在一起多有幸福。
 我手邊能找到的是你們訂婚宴的照片，你掛著金牌的模樣一直存在我腦海裡，
