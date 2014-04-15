@@ -15,6 +15,8 @@ Sheng-Po
 
 2.friendslove資料夾中，有好友們與聖博的小故事。
 
+3.即刻登入FB，寫下對聖博的思念：https://www.facebook.com/groups/1440031886242941/
+
 
 雲端上的聖博
 ========
