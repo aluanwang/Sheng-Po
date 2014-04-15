@@ -1,3 +1,6 @@
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/SungHeng.jpg?raw=true)
+
+
 Dear 聖博
 本想從硬碟中摳出曾經我們最有可能合影的2008玩趣工作坊, 沒想到硬碟插上去竟然叫我格式化, 
 很是他媽的. 翻翻在多年前的flickr海中, 只有唯一一張我掌鏡有你在的照片, 唉... 
