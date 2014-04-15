@@ -22,8 +22,8 @@
 謝謝你的一切
 也祝福聖博的家人 平安健康
 
-![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/ShowyinDai.jpg)
-![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/ShowyinDai_1.jpg)
-![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/ShowyinDai_2.jpg)
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/ShowyinDai.jpg?raw=true)
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/ShowyinDai_1.jpg?raw=true)
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/ShowyinDai_2.jpg?raw=true)
 
 悼念聖博：https://github.com/aluanwang/Sheng-Po — 和 Shen Sheng-Po 跟其他 2 個人
