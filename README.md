@@ -11,6 +11,9 @@ Sheng-Po
 
 相見方式
 ========
+
+![alt tag](https://github.com/aluanwang/Sheng-Po/blob/master/img/%E8%80%81%E6%B1%9F.png?raw=true)
+
 1.FACEBOOK-塗鴉牆.md檔案裡，節錄好友在聖博塗鴉牆上的祝福。
 
 2.friendslove資料夾中，有好友們與聖博的小故事。
