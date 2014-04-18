@@ -23,6 +23,8 @@ Sheng-Po
 
 雲端上的聖博
 ========
+迴盪在理性科技的藝術靈魂－數位藝術家沈聖博的精神和省思:
+http://www.digiarts.org.tw/chinese/Column_Content.aspx?n=1BBCBF0CF37DE2DD&p=BD4858895FF10D72&s=A9387ACC3866DB1A
 
 台灣當代藝術資料庫：http://wiki.avat-art.org/mediawiki/index.php/%E6%B2%88%E8%81%96%E5%8D%9A
 
