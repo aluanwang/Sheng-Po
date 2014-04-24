@@ -24,6 +24,9 @@ Sheng-Po
 雲端上的聖博
 ========
 
+[藝評]第三回合-沈聖博的隨機運行之無機世界:
+http://www.digiarts.org.tw/chinese/Column_Content.aspx?n=1BBCBF0CF37DE2DD&p=BD4858895FF10D72&s=1E86D5C566F6EA19
+
 [藝評]藝術細緻中的規則－數位藝術家沈聖博專訪：
 http://artmagazine.com.tw/ArtCritic/article401.html
 
