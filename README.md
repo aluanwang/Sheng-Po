@@ -25,18 +25,14 @@ Sheng-Po
 ========
 [[藝評]-每一回合的創作歷程，就是一回合的分享過程 ─ 沈聖博與Floss+Art](http://www.digiarts.org.tw/chinese/Column_Content.aspx?n=1BBCBF0CF37DE2DD&p=BD4858895FF10D72&s=C7DB00800A90CF86)
 
+[[藝評]第三回合-沈聖博的隨機運行之無機世界](http://www.digiarts.org.tw/chinese/Column_Content.aspx?n=1BBCBF0CF37DE2DD&p=BD4858895FF10D72&s=1E86D5C566F6EA19)
 
-[藝評]第三回合-沈聖博的隨機運行之無機世界:
-http://www.digiarts.org.tw/chinese/Column_Content.aspx?n=1BBCBF0CF37DE2DD&p=BD4858895FF10D72&s=1E86D5C566F6EA19
+[[藝評]藝術細緻中的規則－數位藝術家沈聖博專訪](http://artmagazine.com.tw/ArtCritic/article401.html)
 
-[藝評]藝術細緻中的規則－數位藝術家沈聖博專訪：
-http://artmagazine.com.tw/ArtCritic/article401.html
+[[藝評]迴盪在理性科技的藝術靈魂－數位藝術家沈聖博的精神和省思](http://www.digiarts.org.tw/chinese/Column_Content.aspx?n=1BBCBF0CF37DE2DD&p=BD4858895FF10D72&s=A9387ACC3866DB1A)
 
-[藝評]迴盪在理性科技的藝術靈魂－數位藝術家沈聖博的精神和省思:
-http://www.digiarts.org.tw/chinese/Column_Content.aspx?n=1BBCBF0CF37DE2DD&p=BD4858895FF10D72&s=A9387ACC3866DB1A
+[[藝評]科技溫度中的高尚純潔：沈聖博的《pin shadow》與《texture》](http://www.digiarts.org.tw/chinese/Column_Content.aspx?n=1BBCBF0CF37DE2DD&p=BD4858895FF10D72&s=97C5ECD69BEC29F5)
 
-[藝評]科技溫度中的高尚純潔：沈聖博的《pin shadow》與《texture》：
-http://www.digiarts.org.tw/chinese/Column_Content.aspx?n=1BBCBF0CF37DE2DD&p=BD4858895FF10D72&s=97C5ECD69BEC29F5
 
 台灣當代藝術資料庫：http://wiki.avat-art.org/mediawiki/index.php/%E6%B2%88%E8%81%96%E5%8D%9A
 
