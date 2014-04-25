@@ -23,6 +23,8 @@ Sheng-Po
 
 雲端上的聖博
 ========
+[[藝評]-每一回合的創作歷程，就是一回合的分享過程 ─ 沈聖博與Floss+Art](http://www.digiarts.org.tw/chinese/Column_Content.aspx?n=1BBCBF0CF37DE2DD&p=BD4858895FF10D72&s=C7DB00800A90CF86)
+
 
 [藝評]第三回合-沈聖博的隨機運行之無機世界:
 http://www.digiarts.org.tw/chinese/Column_Content.aspx?n=1BBCBF0CF37DE2DD&p=BD4858895FF10D72&s=1E86D5C566F6EA19
